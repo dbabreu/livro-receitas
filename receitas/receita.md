@@ -9,4 +9,4 @@
 * 1 colher de sopa de sal
 Se vocẽ gostou da receita visite nosso canal do youtube para aprender novas receitas.
 
-Obrigado p 
+Obrigado  
